@@ -1,4 +1,4 @@
-#  
+#  Get the ultimate Fantastical for macOS integration with top Integration for Fantastical for macOS - offline access and export to PDF. Featuring offline access and export to PDF,
 
 
 
